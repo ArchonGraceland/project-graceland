@@ -6,4 +6,4 @@ Crypto Liberation Revolution creates system of national governance where the rul
 
 www.projectgraceland.com
 
-Private Beta
+Private Beta - Launch Fall 2018
